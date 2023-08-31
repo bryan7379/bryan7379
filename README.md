@@ -4,5 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me? 
 
-This is ma profile. (AKMAL MAULANA) 
-IF YOU SURE CAN MAKE THE SC, PLS CONTACT ME. THANK'S
+
