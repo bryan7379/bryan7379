@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @bryan7379
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me? 
+- 👋 Hi, I’m @Akmal
+- 👀 I’m interested in you <3
+- 🌱 I’m currently learning programming 
+  
 
 
